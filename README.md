@@ -1,0 +1,1 @@
+# Wise-Auto-Shutdown-2.0.6.110-Crack
